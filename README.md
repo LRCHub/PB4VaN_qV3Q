@@ -1,0 +1,92 @@
+# MOB CHOIR – 1
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+(MOB MOB WOW! MOB MOB WOW!)
+(MOB MOB WOW! MOB MOB WOW!)
+I realized
+青春はグレイ
+焦燥の正体は不明
+感情 Train
+並走する Brain
+足掻く Adolescence
+Don't disturb 深層心理
+後ろの正面は誰？
+対峙する想念 Distortion
+祓え憂いを
+So,do what you can now.
+My life FinallyBreak it down!!
+(WANT)欲望も
+(YOUNG)誠実も
+(BURN)この胸で
+(1)芽生えてくる
+(TRANCE)目覚めない
+(CHANCE)目覚めたい
+(STANCE)裏表
+(1)背中合わせ
+(ありのままを)受け入れて
+鬩ぎ合う自由 Relation
+ひとつになれたなら
+その笑顔は
+One and only "1"
+(MOB MOB WOW! MOB MOB WOW!)
+(MOB MOB WOW! MOB MOB WOW!)
+No regrets
+人生  Show time
+将来の詳細は未定
+炎上 Tric
+明暗 Psychic
+運命デュアリズム
+Don't seek, find
+問題提起
+表層で暴走の世代
+乖離する心情 Distance
+諸刃の本能
+I don't care to bad.
+My self Seize the day
+Make it right!!
+(MAN)破滅から
+(MOUNT)不滅へと
+(BANG)この能力
+(1)共鳴する
+(JUNK)放てない
+(JUMP)放ちたい
+(BOUNCE)過去未来
+(1)詰むヒストリー
+(冴えなかった)
+今日という日も
+シアワセと呼ぶ日がくる
+泣き腫らす瞳で視た
+その世界が
+One and only "1"
+(COUNT)100だって
+(DOWN)0だって
+(RUN)無限への
+(1)扉にする
+(CAN)認めない
+(SCAN)認めたい
+(STAND)自分との
+(1)結末あわせ
+(WANT)欲望も
+(YOUNG)誠実も
+(BURN)この胸で
+(1)芽生えてくる
+(TRANCE)目覚めない
+(CHANCE)目覚めたい
+(STANCE)裏表
+(1)背中合わせ
+(ありのままを)受け入れて
+鬩ぎ合う自由 Relation
+ひとつになれたなら
+その笑顔は
+One and only "1"
+(MOB MOB WOW!)
+"1"
+(MOB MOB WOW! MOB MOB WOW!)
+One and only ''1"
+(MOB MOB WOW!)
+"1"
+(MOB MOB WOW!)
+One and only "1"
+```
